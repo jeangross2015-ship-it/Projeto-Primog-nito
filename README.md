@@ -4,7 +4,7 @@ O sexo do seu primeiro filho pode conter uma informação que sua família nunca
 
 A hipótese:
 
-O sexo do primeiro filho biológico de um casal prediz algo sobre os genitores.
+O sexo do primeiro filho biológico de um casal pode estar associado a algo sobre os genitores.
 
 Baseada na Hipótese de Trivers-Willard (1973) — 50 anos de literatura em biologia evolutiva. A extensão proposta aqui nunca foi investigada por nenhum pesquisador no mundo.
 
