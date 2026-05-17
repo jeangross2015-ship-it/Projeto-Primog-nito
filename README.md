@@ -10,10 +10,10 @@ Baseada na Hipótese de Trivers-Willard (1973) — 50 anos de literatura em biol
 
 O projeto:
 Estudo observacional com protocolo completo, questionário validado e cálculo amostral formalizado. Pronto para submissão ao CEP.
-Desenvolvido por Jean Alisson Gonçalves Gross — pesquisador independente, Colombo— PR.
+Desenvolvido por Jean A. G. Gross — pesquisador independente, Colombo— PR.
 Busco colaborador:
 Preciso de pesquisador(a) com graduação para submissão à Plataforma Brasil.
 Quem colaborar será coautor(a) em todas as publicações científicas derivadas do projeto.
-📧 jeangross2015@gmail.com
+📧 projetoprimogenito@gmail.com
 
 "Uma intuição confirmada por dados é uma descoberta. Uma intuição sem dados é apenas uma intuição."
